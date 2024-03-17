@@ -6,3 +6,5 @@
 <p> HEY GANG!!! ITS YO BOYYYY HOONIS!!! </p>
 
 <p>  🤡  idk. theres not much to say about me. i REALLY REALLY REALLY LIKE clowns, rats, cowboys, and being evil and stuff. </p>
+
+<p>  🤡  I'll try not repeat anything that can be found in some of my other (not-hidden) websites </p>
