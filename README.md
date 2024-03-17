@@ -15,6 +15,8 @@
 
 <h2> shouldi put a byi. i dont know what else to add</h2>
 
+![problem-sleuth-homestuck](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/0a69e630-1d7c-4c88-97a9-fbe7e5c61e9f)
+
 <p>  😱 im mean sometimes</p>
 
 <p> yeah.. that'll do it. </p>
