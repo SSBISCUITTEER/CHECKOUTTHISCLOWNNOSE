@@ -19,6 +19,6 @@
 
 <p> yeah.. that'll do it. </p>
 
-<p> ill update this. later. ciao gang </p>
+<h2> ill update this. later. ciao gang </h2>
 
 ![highschool movie girl running away from prom dramatically and sobbing after being utterly humiliated by the popular girls](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/8e626b82-9613-4dca-9202-567c2abfbeed)
