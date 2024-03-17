@@ -10,3 +10,9 @@
 <p>  🤡  I'll try not repeat anything that can be found in some of my other (not-hidden) websites </p>
 
 <p>  🤡  I have a whoooole lotta interests but. i guess the "main ones" are Ace Attorney, Homestuck, Smile for Me, Lemon Demon, Lego Movie(s), and Bigtop Burger. I have much more though rhhgrjgrhj . just too much to put on here. </p>
+
+<p> shouldi put a byi. i dont know what else to add</p>
+
+<p>  🤡  BYI!!!1!1!!11!!11 im mean sometimes</p>
+
+<p> yeah.. that'll do it. </p>
