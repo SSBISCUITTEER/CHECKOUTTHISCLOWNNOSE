@@ -13,9 +13,9 @@
 
 <p>  🤡  hmm i am a minor (13-16) so uh keep that in mind i guess </p>
 
-<p> shouldi put a byi. i dont know what else to add</p>
+<h1> shouldi put a byi. i dont know what else to add</h1>
 
-<p>  🤡  BYI!!!1!1!!11!!11 im mean sometimes</p>
+<p>  😱 im mean sometimes</p>
 
 <p> yeah.. that'll do it. </p>
 
