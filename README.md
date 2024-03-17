@@ -8,3 +8,5 @@
 <p>  🤡  idk. theres not much to say about me. i REALLY REALLY REALLY LIKE clowns, rats, cowboys, and being evil and stuff. </p>
 
 <p>  🤡  I'll try not repeat anything that can be found in some of my other (not-hidden) websites </p>
+
+<p>  🤡  I have a whoooole lotta interests but. i guess the "main ones" are Ace Attorney, Homestuck, Smile for Me, Lemon Demon, Lego Movie(s), and Bigtop Burger. I have much more though rhhgrjgrhj . just too much to put on here. </p>
