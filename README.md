@@ -15,7 +15,8 @@
 
 <h2> shouldi put a byi. i dont know what else to add</h2>
 
-![yeahhh hit that jig problem sleuth](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/de83660f-5bd2-4879-97c7-73ce98258217)
+![yeahhh hit that jig problem sleuth](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/de83660f-5bd2-4879-97c7-73ce98258217) ![a_really_short_byi](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/353aa049-422e-48bf-b7ec-8bde2ee1fc9e)
+
 
 
 <p>  😱 im mean sometimes</p>
