@@ -11,8 +11,13 @@
 
 <p>  🤡  I have a whoooole lotta interests but. i guess the "main ones" are Ace Attorney, Homestuck, Smile for Me, Lemon Demon, Lego Movie(s), and Bigtop Burger. I have much more though rhhgrjgrhj . just too much to put on here. </p>
 
+<p>  🤡  hmm i am a minor (13-16) so uh keep that in mind i guess </p>
+
 <p> shouldi put a byi. i dont know what else to add</p>
 
 <p>  🤡  BYI!!!1!1!!11!!11 im mean sometimes</p>
 
 <p> yeah.. that'll do it. </p>
+
+<p> ill update this. later. ciao gang </p>
+![highschool movie girl running away from prom dramatically and sobbing after being utterly humiliated by the popular girls](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/8e626b82-9613-4dca-9202-567c2abfbeed)
