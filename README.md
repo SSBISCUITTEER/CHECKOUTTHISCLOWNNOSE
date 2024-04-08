@@ -18,21 +18,16 @@
 ![yeahhh hit that jig problem sleuth](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/de83660f-5bd2-4879-97c7-73ce98258217) 
 ![strop](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/c2d55a03-29ab-480c-960b-261eaea1c5f5)
 
+<p>  😱 im mean sometimes</p>
+
+<p> yeah.. that'll do it. </p>
+
 <h2> grrrr.... </h2>
 
 ![dni](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/5695acbd-ea13-4416-b50b-9bb4a7429acb)
 
 <p>😡 clown fuckers </p>
 <p>😡certain fandoms... hmm..... </p>
-
-
-
-<p>  😱 im mean sometimes</p>
-
-<p> yeah.. that'll do it. </p>
-
-<h2> GRRRR!!!!!!!!!!!</h2>
-![dni](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/94dcea17-4c58-4cba-842a-d02bd62fc66d)
 
 <h1> ill update this. later. ciao gang </h1>
 
