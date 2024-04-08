@@ -17,6 +17,11 @@
 
 ![yeahhh hit that jig problem sleuth](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/de83660f-5bd2-4879-97c7-73ce98258217) 
 ![strop](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/c2d55a03-29ab-480c-960b-261eaea1c5f5)
+
+<h2> grrrr.... </h2>
+
+![dni](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/5695acbd-ea13-4416-b50b-9bb4a7429acb)
+
 <p>😡 clown fuckers </p>
 <p>😡certain fandoms... hmm..... </p>
 
