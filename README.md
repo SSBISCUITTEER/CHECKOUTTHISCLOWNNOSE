@@ -11,7 +11,7 @@
 
 <p>  🤡  I have a whoooole lotta interests but. i guess the "main ones" are Ace Attorney, Homestuck, Smile for Me, Lemon Demon, Lego Movie(s), and Bigtop Burger. I have much more though rhhgrjgrhj . just too much to put on here. </p>
 
-<p>  🤡  hmm i am a minor (13-16) so uh keep that in mind i guess </p>
+<p>  🤡  hmm i am a minor (specifically 13-16) so uh keep that in mind i guess </p>
 
 <h2> shouldi put a byi. i dont know what else to add</h2>
 
