@@ -27,6 +27,7 @@
 ![dni](https://github.com/CHECKOUTTHISCLOWNNOSE/CHECKOUTTHISCLOWNNOSE/assets/124318937/5695acbd-ea13-4416-b50b-9bb4a7429acb)
 
 <p>😡 clown fuckers </p>
+<p>😡 clown haters</p>
 
 
 <h1> ill update this. later. ciao gang </h1>
