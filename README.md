@@ -7,4 +7,4 @@ avid people watcher
 
 <p> i love clowns os much </p>
 
-<p> dni is just,. the obvious stuff. basic dni criteria like proshipping and whatnot. its basic dni for a reason</p>
+<p> dni is just,. the obvious stuff. basic dni criteria like proshipping,homophobia and whatnot. its basic dni for a reason</p>
