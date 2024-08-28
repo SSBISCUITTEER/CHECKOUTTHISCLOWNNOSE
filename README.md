@@ -1,7 +1,5 @@
-i like making friends but i suck at initiating conversations
-
-<p> please dont make me grow as a person and get over this fault .p le,ase talk to me first</p>
+i like making friends but i suck at initiating conversations. please dont make me grow as a person and get over this fault .p le,ase talk to me first
 <P> id be happy </P>
+<p> i dont want to make a dni due to how. useless they are but uhhh i do ignore everyone i see under the "proship tree" ,,, yknow the one. with the proship andy & leyley fans.</p>
 
-![yooo](https://github.com/user-attachments/assets/da64a7fb-5627-432b-9981-c7008666b6f8)
-<p> send me gimmicks by the way i like seeing your drawings and. words. and stuff. </p>
+![so real hatchy](https://github.com/user-attachments/assets/3b883df3-fff2-4db7-b0f0-3d0de7e41e3a)
