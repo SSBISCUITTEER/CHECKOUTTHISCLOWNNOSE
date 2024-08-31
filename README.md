@@ -4,6 +4,6 @@ i like making friends but i suck at initiating conversations. please dont make m
 
 <p> also dni everyone under 13 and over 18 please. unless were already friends, i really dont want to talk to adults or tiny children. and of course basic dni </p>
 
-<p> oh no! i accidentally made a dni!!!fourth link for even more random dni's!!!!!! why am i like this!!! help!!!</p>
+<p> oh no! i accidentally made a dni!!!</p>
 
 ![so real hatchy](https://github.com/user-attachments/assets/3b883df3-fff2-4db7-b0f0-3d0de7e41e3a)
