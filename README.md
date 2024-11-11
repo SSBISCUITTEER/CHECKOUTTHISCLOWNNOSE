@@ -6,3 +6,5 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 ask me about spg i will GLADLY infodump
 
 ![fyb facts about me](https://github.com/user-attachments/assets/87642e4c-be03-4a36-8608-ff5f9d333efa)
+
+<spoiler> heh... </spoiler>
