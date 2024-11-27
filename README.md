@@ -5,6 +5,6 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 
 ask me about spg i will GLADLY infodump. have spoken about it to 6 people, aiming for 8 billion!
 
-![fyb facts about me](https://github.com/user-attachments/assets/87642e4c-be03-4a36-8608-ff5f9d333efa)
+![awesome gif](https://github.com/user-attachments/assets/af176b27-ccc5-401d-80c0-368d62f14852)
 
 <spoiler> heh... </spoiler>
