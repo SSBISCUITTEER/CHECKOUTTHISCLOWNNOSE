@@ -13,4 +13,4 @@ ever since they KILLED the original heart lake location ive moved to rotating be
 ![1](https://github.com/user-attachments/assets/84e02820-7aa8-4c5c-b0fe-fb01abbf7a2c)
 ![2](https://github.com/user-attachments/assets/729ac493-894b-4336-a66d-f99df4fa69de)
 ![3](https://github.com/user-attachments/assets/1b05484d-83a6-43e8-9c68-50b0c650b8e8)
-lest im feeling rebellious (or hanging out with other people) i will always reside in one of these three spots...............................
+<P> lest im feeling rebellious (or hanging out with other people) i will always reside in one of these three spots............................... </P>
