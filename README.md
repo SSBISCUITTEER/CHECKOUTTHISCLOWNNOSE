@@ -8,7 +8,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 - spg and homestuck mostly
 <p> Gunslinger - plz wait </p>
 Pirate - wiat plz plz
-Samurai - 1
+<p> Samurai - 1 </P>
 <p>(asking people.. which theyd rather be... heh)... </P>
 ![HATCHWORTH NO](https://github.com/user-attachments/assets/c2e71974-949c-49cf-b253-3ce4c4d8b36b)
 
