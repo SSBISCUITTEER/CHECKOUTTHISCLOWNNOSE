@@ -10,6 +10,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 <p> Pirate - 3 </P>
 <p> Samurai - 6 </P>
 <p>(asking people.. which theyd rather be... heh)... </P>
+
 ![HATCHWORTH NO](https://github.com/user-attachments/assets/c2e71974-949c-49cf-b253-3ce4c4d8b36b)
 
 ever since they KILLED the original heart lake location ive moved to rotating between these three spots
