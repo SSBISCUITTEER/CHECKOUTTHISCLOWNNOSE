@@ -7,7 +7,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 - im slash srs about the whisp2int 99.9% of the time i will most likely not see your messages. i also usually have my chat closed unless im actively having a conversation with someone., PLEASE JUST WHISPER PLEEAASSSEeeee
 - spg and homestuck mostly
 <p> Gunslinger - 3 </p>
-<p> Pirate - 3 </P>
+<p> Pirate - 4 </P>
 <p> Samurai - 6 </P>
 <p>(asking people.. which theyd rather be... heh)... </P>
 
